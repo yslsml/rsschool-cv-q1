@@ -4,6 +4,7 @@
 +375(29)908-52-72  
 mmf.antonovam@gmail.com
 
+My aim is to become a successful programmer and to develop my skills. My priority is self-development. I appreciate ambitious people who inspire me. I am quick-lerning, hard-working and communicative person. I really want to learn new things because it gives me a lot of joy and energy and expands the frontiers of my knowledge. I belive you'll find me a useful member of your team.
 
 ### Skills
 * C++
